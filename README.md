@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **21pw37@psgtech.ac.in**
 
-- ⚡ Fun fact **I want everything i do to be aesthetically pleasing**
+- ⚡ Fun fact **I want everything I do to be aesthetically pleasing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
